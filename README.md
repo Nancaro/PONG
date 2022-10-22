@@ -7,7 +7,7 @@ Mis redes sociales:
 
 https://www.instagram.com/nancaro_/
 
-https://twitter.com/nancaro_
+https://twitter.com/nancaro_/
 
 https://www.linkedin.com/in/bruno-aguirre21/
 
